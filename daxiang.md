@@ -56,7 +56,7 @@
 [如何正确读古诗](https://telegra.ph/%E5%A6%82%E4%BD%95%E6%AD%A3%E7%A1%AE%E8%AF%BB%E5%8F%A4%E8%AF%97-09-28)  
 [为什么南方多江，北方多河？](https://telegra.ph/%E4%B8%BA%E4%BB%80%E4%B9%88%E5%8D%97%E6%96%B9%E5%A4%9A%E6%B1%9F%E5%8C%97%E6%96%B9%E5%A4%9A%E6%B2%B3-09-28)  
 [真问真答 20160121](https://telegra.ph/%E7%9C%9F%E9%97%AE%E7%9C%9F%E7%AD%94-20160121-09-28)  
-[学生干部发迹指南](https://telegra.ph/%E5%AD%A6%E7%94%9F%E5%B9%B2%E9%83%A8%E5%8F%91%E8%BF%B9%E6%8C%87%E5%8D%97-09-28)  
+[学生干部发迹指南](https://telegra.ph/%E5%A4%A7%E8%B1%A1%E5%85%AC%E4%BC%9A--%E5%AD%A6%E7%94%9F%E5%B9%B2%E9%83%A8%E5%8F%91%E8%BF%B9%E6%8C%87%E5%8D%97-09-30)  
 [普京是怎样炼成的](https://telegra.ph/%E6%99%AE%E4%BA%AC%E6%98%AF%E6%80%8E%E6%A0%B7%E7%82%BC%E6%88%90%E7%9A%84-09-28)  
 [如何起个与时俱进的英文名](https://telegra.ph/%E5%A6%82%E4%BD%95%E8%B5%B7%E4%B8%AA%E4%B8%8E%E6%97%B6%E4%BF%B1%E8%BF%9B%E7%9A%84%E8%8B%B1%E6%96%87%E5%90%8D-09-28)  
 [英国为什么没有“皇家陆军”这一称呼？](https://telegra.ph/%E8%8B%B1%E5%9B%BD%E4%B8%BA%E4%BB%80%E4%B9%88%E6%B2%A1%E6%9C%89%E7%9A%87%E5%AE%B6%E9%99%86%E5%86%9B%E8%BF%99%E4%B8%80%E7%A7%B0%E5%91%BC-09-28)  
