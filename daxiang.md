@@ -69,7 +69,7 @@
 [看，列宁掉地上了](https://telegra.ph/%E5%A4%A7%E8%B1%A1%E5%85%AC%E4%BC%9A--%E7%9C%8B%E5%88%97%E5%AE%81%E6%8E%89%E5%9C%B0%E4%B8%8A%E4%BA%86-09-30)  
 [神户人民不养牛](https://telegra.ph/%E7%A5%9E%E6%88%B7%E4%BA%BA%E6%B0%91%E4%B8%8D%E5%85%BB%E7%89%9B-09-28)  
 [真问真答 20151203](https://telegra.ph/%E7%9C%9F%E9%97%AE%E7%9C%9F%E7%AD%94-20151203-09-28)  
-[谁是最爱普京的人？](https://telegra.ph/%E8%B0%81%E6%98%AF%E6%9C%80%E7%88%B1%E6%99%AE%E4%BA%AC%E7%9A%84%E4%BA%BA-09-28)  
+[谁是最爱普京的人？](https://telegra.ph/%E8%B0%81%E6%98%AF%E6%9C%80%E7%88%B1%E6%99%AE%E4%BA%AC%E7%9A%84%E4%BA%BA-09-30)  
 [真问真答 20151016](https://telegra.ph/%E7%9C%9F%E9%97%AE%E7%9C%9F%E7%AD%94-20151016-09-28)  
 [超越邓巴数之四：婚姻粘结剂](https://telegra.ph/%E8%B6%85%E8%B6%8A%E9%82%93%E5%B7%B4%E6%95%B0%E4%B9%8B%E5%9B%9B%E5%A9%9A%E5%A7%BB%E7%B2%98%E7%BB%93%E5%89%82-09-28)  
 [军训：通往站军姿之路｜大象公会](https://telegra.ph/%E5%86%9B%E8%AE%AD%E9%80%9A%E5%BE%80%E7%AB%99%E5%86%9B%E5%A7%BF%E4%B9%8B%E8%B7%AF%E5%A4%A7%E8%B1%A1%E5%85%AC%E4%BC%9A-09-28)  
