@@ -44,7 +44,7 @@
 [中国什么地方的人智商最高](https://telegra.ph/%E4%B8%AD%E5%9B%BD%E4%BB%80%E4%B9%88%E5%9C%B0%E6%96%B9%E7%9A%84%E4%BA%BA%E6%99%BA%E5%95%86%E6%9C%80%E9%AB%98-09-28)  
 [中国的外星人会气功](https://telegra.ph/%E4%B8%AD%E5%9B%BD%E7%9A%84%E5%A4%96%E6%98%9F%E4%BA%BA%E4%BC%9A%E6%B0%94%E5%8A%9F-09-28)  
 [真问真答 20151224](https://telegra.ph/%E7%9C%9F%E9%97%AE%E7%9C%9F%E7%AD%94-20151224-09-28)  
-[当皇帝不能再朱批“知道了”](https://telegra.ph/%E5%BD%93%E7%9A%87%E5%B8%9D%E4%B8%8D%E8%83%BD%E5%86%8D%E6%9C%B1%E6%89%B9%E7%9F%A5%E9%81%93%E4%BA%86-09-28)  
+[当皇帝不能再朱批“知道了”](https://telegra.ph/%E5%BD%93%E7%9A%87%E5%B8%9D%E4%B8%8D%E8%83%BD%E5%86%8D%E6%9C%B1%E6%89%B9%E7%9F%A5%E9%81%93%E4%BA%86%E5%A4%A7%E8%B1%A1%E5%85%AC%E4%BC%9A-09-30)  
 [那帮世界上最猖的老炮儿](https://telegra.ph/%E9%82%A3%E5%B8%AE%E4%B8%96%E7%95%8C%E4%B8%8A%E6%9C%80%E7%8C%96%E7%9A%84%E8%80%81%E7%82%AE%E5%84%BF-09-28)  
 [真问真答 20160107](https://telegra.ph/%E7%9C%9F%E9%97%AE%E7%9C%9F%E7%AD%94-20160107-09-28)  
 [看，芈月的嘴唇变红了](https://telegra.ph/%E7%9C%8B%E8%8A%88%E6%9C%88%E7%9A%84%E5%98%B4%E5%94%87%E5%8F%98%E7%BA%A2%E4%BA%86-09-28)  
